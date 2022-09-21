@@ -1,5 +1,3 @@
-# James Gavin
-
 ## What I am doing now
 I am currently studying Finance and Computer Science at the University of Wisconsin-Madison. I plan on graduting in May 2025 with a BBA and BS.
 
